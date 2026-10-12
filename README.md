@@ -3,12 +3,8 @@ I’m currently working onI’m currently working on improving my cyber security
 
 
 ## 🌐 Socials:
-Ye lo, sirf Instagram wala — single line, copy karne me easy:
-
 IMG.SHIELDS.IO
-
 Instagram-E4405F
-
 ](https://www.instagram.com/tpr_x.priyansh/) [](https://www.instagram.com/tpr_x.priyansh/) [![LinkedIn](https://img.shields.io/badge/LinkedIn-%230077B5.svg?logo=linkedin&logoColor=white)](https://www.linkedin.com/in/priyansh-srivastav-b6a1b43a2/) [![email](https://img.shields.io/badge/Email-D14836?logo=gmail&logoColor=white)](mailto:priyanshsrivastav184@gmail.com) 
 
 
